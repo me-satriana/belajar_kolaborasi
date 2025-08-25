@@ -3,3 +3,4 @@
 pasti akan sangat menyenangkan 
 mari kita coba selesaikan
 bismillah 
+oke finish
